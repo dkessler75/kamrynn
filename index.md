@@ -6,3 +6,5 @@ my car crash!So my bother and mom and I were going to the doctors.And thar was a
 And when that happened I was crying a lot.  I only remember that at the end that I got Teddy Grahams(tm) and a Teddy Bear at the end of it.  And then, I got a balloon.  Then I got all better!
 
 <img src='https://s-media-cache-ak0.pinimg.com/736x/43/7b/9b/437b9bbf3fde6d6a331b52bf6c422850.jpg'/>
+
+<img src='http://www.rewildthyself.com/wp-content/uploads/2015/03/poop.jpeg'/>
